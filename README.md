@@ -1,1 +1,1 @@
-Just a portfolio :)
+My portfolio with contacts and things i did.
